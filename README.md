@@ -8,7 +8,6 @@
 - 📫 How to reach me:
 -  **griemnovig@gmail.com**
 -  **https://t.me/PlayTonic**
--  playtonic
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
